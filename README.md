@@ -1,0 +1,1 @@
+# Does-climate-change-news-affect-uncertainty-in-financial-markets-A-text-analysis-approach
